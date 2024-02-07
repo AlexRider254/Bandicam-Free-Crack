@@ -1,3 +1,6 @@
+
+![preview](https://github.com/AlexRider254/Bandicam-Free-Crack/assets/98379498/2ff20245-7957-44a1-bdaa-e396de044310)
+
 # Bandicam-Free-Crack
 📺bandicam crack 2024 bandicam download crack📺
 
